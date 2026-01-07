@@ -47,9 +47,9 @@ https://platoocheckout18223044.vercel.app/
 
 ---
 
-Demikian hasil layanan kami yang sudah terintegrasi.
+Demikian hasil layanan yang sudah terintegrasi.
 
 Terima kasih.
 
-Hormat kami,  
-Rayhan Hidayatul Fikri & Princessfa Azzahra Alvin
+Hormat saya,  
+Princessfa Azzahra Alvin
